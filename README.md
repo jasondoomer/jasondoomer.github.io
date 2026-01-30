@@ -1,1 +1,0 @@
-# jasondoomer.github.io
